@@ -1,7 +1,7 @@
 # Carlos Arturo Amaya Castro
 
 **Ingeniero de Sistemas & Desarrollador Full-Stack**  
-Bogotá, Colombia • [LinkedIn](https://www.linkedin.com/in/caraya05) • [carlos.amy375d@gmail.com](mailto:carlos.amy375d@gmail.com)
+Bogotá, Colombia • [LinkedIn](https://www.linkedin.com/in/carlos-arturo-amaya/) • [carlos.amy375d@gmail.com](mailto:carlos.amy375d@gmail.com)
 
 ---
 
